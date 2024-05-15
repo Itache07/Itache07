@@ -1,5 +1,5 @@
 #sobre mim **gleisson**
-##**mini noia**
+**mini noia**
 -:+1:ome [e-mail](gleisson.ramos@escola.pr.gov.br)
 - 👋 Hi, I’m @Itache07
 - 👀 I’m interested in ...
